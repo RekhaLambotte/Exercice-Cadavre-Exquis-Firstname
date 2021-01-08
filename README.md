@@ -10,4 +10,4 @@ Once upon a time
 
 in Belgium ..
 
-THE person
+THE person was going out from the airport while checking his phone when suddenly it was so silent that the person took a look around and everyone was gone...
