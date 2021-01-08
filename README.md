@@ -25,3 +25,6 @@ Other noises began to be heard, coming from another galaxy.
 
 ![Sercati](https://pict.myclubplasma.be/Galeries/1232/Sercati-BW-10.jpg)
 
+He pushes the skateboard with his foot. The skate rolls to a large yellow box located under the bed. It reads: "Plutonium - handle with care". He enters a key in a device connected to a very large amplifier.
+
+Alors voyons voir si j'ai foutu le bor*** ou si j'ai failli à ma mission ! 
