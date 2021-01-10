@@ -9,7 +9,6 @@ Once upon a time
 in Belgium ..
 
 
->>>>>>> development
 THE person was going out from the airport while checking his phone when suddenly it was so silent that the person took a look around and everyone was gone...
 
 He pushes the skateboard with his foot. The skate rolls to a large yellow box located under the bed. It reads: "Plutonium - handle with care". He enters a key in a device connected to a very large amplifier.
@@ -29,5 +28,5 @@ Other noises began to be heard, coming from another galaxy.
 He pushes the skateboard with his foot. The skate rolls to a large yellow box located under the bed. It reads: "Plutonium - handle with care". He enters a key in a device connected to a very large amplifier.
 
 Alors voyons voir si j'ai foutu le bor*** ou si j'ai failli à ma mission ! 
->>>>>>> development
+
 
